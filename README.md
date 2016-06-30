@@ -1,4 +1,3 @@
 # public
-DOLPHINS RULE OTTERS DROOL
-CHIMPS WILL REMAIN NEUTRAL
-CHIPS ARE COWARDS. THE WINDS OF WAR ARE BLOWING IN. TIME TO PICK A SIDE!
+
+The dolphins will make cookies out of the otters after the otters have drowned in the blood of their comrades.
